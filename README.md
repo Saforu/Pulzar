@@ -1,2 +1,2 @@
 # Pulzar
-Idk zebi
+CLaimed
